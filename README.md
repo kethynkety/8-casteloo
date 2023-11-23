@@ -1,1 +1,2 @@
 # 8-casteloo
+O furão é um mamífero carnívoro da família dos Mustelídeos. Existem diversas espécies de mustelídeos, sendo a mais conhecida o furão-doméstico, utilizado como animal de estimação em vários países do mundo.Espécie de médio porte, orelhas pequenas, corpo alongado, patas e cauda curtas. A pelagem e longa e apresenta uma faixa branca na testa, que parte das orelhas e vai até os ombros, separando a face, pescoço e o queixo, de cor negra, do dorso, de tonalidade acinzentada
